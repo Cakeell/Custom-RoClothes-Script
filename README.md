@@ -2,4 +2,4 @@ RoClothes is Newest version, and Archive of old versions.
 
 NOT MADE BY ME, who are the creator of RoClothes: cat lover#1611
 
-Join this server discord.gg/HBzvWE6Rp3 and check #server for more servers.
+Join this server https://discord.gg/HBzvWE6Rp3 and check #server for more servers.
